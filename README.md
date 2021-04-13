@@ -57,7 +57,7 @@ samsung odyssey g27
 samsung odyssey g7  
 
 
-Examples:
+Examples:  
 https://www.computeruniverse.net/en/lenovo-ideacentre-t540-15icb-90l1006qge-tower-pc-with-windows-10
 
 
